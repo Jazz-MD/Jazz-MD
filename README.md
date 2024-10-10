@@ -7,7 +7,7 @@ I am currently studying **Front-End Development**. I love learning about new tec
 I'd love to connect with you! Here are some links to keep in touch:
 
 - [LinkedIn](https://www.linkedin.com/in/jazminmeneses/) 
-- [Email](jazmin.menesesdiaz@gmail.com)
+- jazmin.menesesdiaz@gmail.com
 
 Thanks for visiting my profile! 😊
 
